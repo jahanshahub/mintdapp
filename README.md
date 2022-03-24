@@ -1,0 +1,1 @@
+Minting Dapp for Crazy Combat Critters Club 
